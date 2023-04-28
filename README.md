@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marta-cri
-- 👀 I’m interested in rivers dynamics and their value in the Anthropocene, Mediterranean cuisine and running into the woods
+- 👀 I’m interested in rivers dynamics and their value in the Anthropocene, Mediterranean cuisine and running wild
 - 🌱 I’m currently learning to embrace cahos and live simply, while enjoying a Ph.D on wild rivers @ University of Trento
 - 💞️ I’m looking to collaborate on remote sensing for river morphodynamics, river geomorphic sensitivity, dynamicity and riverine ecosystem services!
 - 📫 How to reach me: marta.crivellaro@unitn.it
